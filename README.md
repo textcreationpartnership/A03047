@@ -33,440 +33,444 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Here begynneth the boke intituled Eracles, and also of Godefrey of Boloyne the whiche speketh of the
+•He hye couragyous faytee / And valyaunt actes of noble Illustrous and vertuous personnes ben digne 
+1. tHenne for to knowe the content of this book· ye shal •lay•ly see by the table folowynge / wherof euery chapytre 〈◊〉 al a longe▪
+
 #####Body#####
 
-1. The ffirst chapitre treateth how Eracles conquerd Per•and slewe Cosdroe / and brought in to Iherusalem the very cr•se capitulo primo
+1. Here begynneth the boke Intituled Eracles / and also of Godefrey of Boloyne / the whiche speketh of the Conquest of the hol• londe of Iherusalem / conteynyng diuerse warres and nob••〈◊〉 of Armes made in the same Royāme / and in the contrees 〈…〉 And also many meruayllous werkes happedand fallen as we on this syde / as in tho partyes this tyme duryng / And how he valyant duc Godefrey of Boloyne conquerd with the wer••he sayd Royamme / And was kynge there / 
 
-1. Here recounteth thistorye how that the puissaunt kynge Cosdroe wastyd the Empyre of Rome for tauenge the deth of themperour Maurice / fader of his wyf / capitulo ijo.
+    _ The ffirst chapitre treateth how Eracles conquerd Per•and slewe Cosdroe / and brought in to Iherusalem the very cr•se capitulo primo
 
-1. How this puissaunt kynge entred in to Iherusalem and demaū•ded dylygently of the Temple and reedyfied it and assigned gr••e reuenues therto for tentretene it capitulo iiio.
+    _ Here recounteth thistorye how that the puissaunt kynge Cosdroe wastyd the Empyre of Rome for tauenge the deth of themperour Maurice / fader of his wyf / capitulo ijo.
 
-1. How Charlemayne by his lyberalite gate for the prouffyt of cristen peple in hethenes / thamytye of hethen prynces / capitulo iiij
+    _ How this puissaunt kynge entred in to Iherusalem and demaū•ded dylygently of the Temple and reedyfied it and assigned gr••e reuenues therto for tentretene it capitulo iiio.
 
-1. Of the noyse that sourded emonge the hethen men discordyng in theyr lawe / and how they of egypte yssued out of theyr londe and of the euyllis that they dyde capitulo vo.
+    _ How Charlemayne by his lyberalite gate for the prouffyt of cristen peple in hethenes / thamytye of hethen prynces / capitulo iiij
 
-1. How thaffliccyon. iniuries and tormentes of crysten men grewe in the tyme of Calyphe hetam capitulo vjo.
+    _ Of the noyse that sourded emonge the hethen men discordyng in theyr lawe / and how they of egypte yssued out of theyr londe and of the euyllis that they dyde capitulo vo.
 
-1. How at the requeste of Themperour of Constantynoble the crist•n men obteyned lycence to bylde agayn the chirche of the holy se•ulcre capitulo .vijo.
+    _ How thaffliccyon. iniuries and tormentes of crysten men grewe in the tyme of Calyphe hetam capitulo vjo.
 
-1. Of the turkes fro wens they cam / and how they grewe in to grete puisaunce and dide chese them a kynge for to mayntene their warres capitulo / vijjo.
+    _ How at the requeste of Themperour of Constantynoble the crist•n men obteyned lycence to bylde agayn the chirche of the holy se•ulcre capitulo .vijo.
 
-1. Of thorryble synnes regnyng thenne in crystiante as wel in thyse partyes / as in tho partyes capitulo ixo.
+    _ Of the turkes fro wens they cam / and how they grewe in to grete puisaunce and dide chese them a kynge for to mayntene their warres capitulo / vijjo.
 
-1. Of a bataylle that themperour Romayne of Constantynople had ayenst a puissaunt prynce of thoryent named Belphet cao. xo.
+    _ Of thorryble synnes regnyng thenne in crystiante as wel in thyse partyes / as in tho partyes capitulo ixo.
 
-1. Of many maners of tormens that the cristen peple suffred for theyr synnes / in that tyme / capitulo xjo.
+    _ Of a bataylle that themperour Romayne of Constantynople had ayenst a puissaunt prynce of thoryent named Belphet cao. xo.
 
-1. How aftir the had ben four CCCClxxxx yere in seruage of the hethen peple / our lord pourueyed remedye for his cristen peple / capitulo xij
+    _ Of many maners of tormens that the cristen peple suffred for theyr synnes / in that tyme / capitulo xjo.
 
-1. How the said peter theremyte entreprised the more hardyly his vyage by thapparicōn or vision that he sawe in his sleep / ca xiijo.
+    _ How aftir the had ben four CCCClxxxx yere in seruage of the hethen peple / our lord pourueyed remedye for his cristen peple / capitulo xij
 
-1. Of the persecucions of the chirche in that tyme / and how the pope Vrban was putte oute of the see of Rome by the bysshop of Rauenne / cao.xiiij
+    _ How the said peter theremyte entreprised the more hardyly his vyage by thapparicōn or vision that he sawe in his sleep / ca xiijo.
 
-1. Of a general counseyl that the pope vrban ordeyned for the reformacion of holy chirche & thamendement of the peple / capo. xvo.
+    _ Of the persecucions of the chirche in that tyme / and how the pope Vrban was putte oute of the see of Rome by the bysshop of Rauenne / cao.xiiij
 
-1. How many noble & hye men and other of the Royame of fraunse crossed them for to goo ouer see. ca xvjo.
+    _ Of a general counseyl that the pope vrban ordeyned for the reformacion of holy chirche & thamendement of the peple / capo. xvo.
 
-1. The names of noble men that enterprised this pylgremage as wel on this side as beyonde the montaynes / capitulo xvijo
+    _ How many noble & hye men and other of the Royame of fraunse crossed them for to goo ouer see. ca xvjo.
 
-1. Of thauentures that a Rowte of Cristen men had in this viage / Of whome one Gaultyer withoute knowleche / was Captayne / capitulo xviijo
+    _ The names of noble men that enterprised this pylgremage as wel on this side as beyonde the montaynes / capitulo xvijo
 
-1. How Pieter the heremyte was chyef of a grete hoost in this
+    _ Of thauentures that a Rowte of Cristen men had in this viage / Of whome one Gaultyer withoute knowleche / was Captayne / capitulo xviijo
+
+    _ How Pieter the heremyte was chyef of a grete hoost in this
 
 viage toward the holy londe· capitulo xixo.
 
-1. How some of the oost of peter theremyte vnwetyng hym sette fyre in the subarbes of Nyz at theyr departyng / capo. xxo.
+    _ How some of the oost of peter theremyte vnwetyng hym sette fyre in the subarbes of Nyz at theyr departyng / capo. xxo.
 
-1. How Peter theremyte was aduertysed of alle this. And of the harme that ensiewed / capitulo xxio.
+    _ How Peter theremyte was aduertysed of alle this. And of the harme that ensiewed / capitulo xxio.
 
-1. How Themperour of Constantynoble beyng aduertised of thise oultrages sente his messagers to peter theremyte / cao. xxijo.
+    _ How Themperour of Constantynoble beyng aduertised of thise oultrages sente his messagers to peter theremyte / cao. xxijo.
 
-1. Of the mayntenyng of the hoost of peter theremyte / And how thre thousand duchemen toke a castel by assault / and slewe alle that were therin with the swerde / capitulo xxiijo.
+    _ Of the mayntenyng of the hoost of peter theremyte / And how thre thousand duchemen toke a castel by assault / and slewe alle that were therin with the swerde / capitulo xxiijo.
 
-1. How Solyman lord of that contre reprysed and toke agayn the castel and slewe alle the duchemen that where therin cao. xxiii•o.
+    _ How Solyman lord of that contre reprysed and toke agayn the castel and slewe alle the duchemen that where therin cao. xxiii•o.
 
-1. How oure men armed them for tauenge the duchemen. and of a recountour that they had ayenst Solyman / cao. xxvo.
+    _ How oure men armed them for tauenge the duchemen. and of a recountour that they had ayenst Solyman / cao. xxvo.
 
-1. How peter theremyte beyng in constantynoble was aduertysed of this disconfyture / and saued thre thousand cristen men beyng in grete daunger capitulo xxvio.
+    _ How peter theremyte beyng in constantynoble was aduertysed of this disconfyture / and saued thre thousand cristen men beyng in grete daunger capitulo xxvio.
 
-1. How a preest named godechan made hym self capytayn of / xl / / M / duchemen in this viage and of theyr oultrages / cao. xxvijo.
+    _ How a preest named godechan made hym self capytayn of / xl / / M / duchemen in this viage and of theyr oultrages / cao. xxvijo.
 
-1. How / C.C / M. cristen men a foote and thre .M. a horsbak withoute capytayn assembled in this pylgremage / and of theyr mayntene / capitulo xxviijo.
+    _ How / C.C / M. cristen men a foote and thre .M. a horsbak withoute capytayn assembled in this pylgremage / and of theyr mayntene / capitulo xxviijo.
 
-1. How this peple began to destroye the londe of the kyng. by ca••se he wold not graunte to them leue for to passe / cao. xx•xo
+    _ How this peple began to destroye the londe of the kyng. by ca••se he wold not graunte to them leue for to passe / cao. xx•xo
 
-1. How the duc godefroy of boloyne beyng with a grete hoost cam vnto hongrye sente his messagers to the kyng for to demande passage / capitulo. xxxo.
+    _ How the duc godefroy of boloyne beyng with a grete hoost cam vnto hongrye sente his messagers to the kyng for to demande passage / capitulo. xxxo.
 
-1. How the messagers of the duc godefroy declared their message vnto the kyng of hongrye / And ther vpon his answere / cao. xxxio.
+    _ How the messagers of the duc godefroy declared their message vnto the kyng of hongrye / And ther vpon his answere / cao. xxxio.
 
-1. How the said kynge sente for to fetche the duc godefroye / And how he wente / and of the deuyses that they had to gydr• cao. xxxij
+    _ How the said kynge sente for to fetche the duc godefroye / And how he wente / and of the deuyses that they had to gydr• cao. xxxij
 
-1. How the duc godeffroye sente his messagers to themperour of constantinoble. to thende that he shold delyuer huon le mayne and other that he helde in prison. capo xxxiijo
+    _ How the duc godeffroye sente his messagers to themperour of constantinoble. to thende that he shold delyuer huon le mayne and other that he helde in prison. capo xxxiijo
 
-1. How the duc godefroye constreyned themperour by force to rendre and delyuere his prisonners / capitulo. xxxiiijo.
+    _ How the duc godefroye constreyned themperour by force to rendre and delyuere his prisonners / capitulo. xxxiiijo.
 
-1. The grete despyte that themperour toke that duc godeffroy reffused to goo in to constatinoble vnto hym. capo. xxxv
+    _ The grete despyte that themperour toke that duc godeffroy reffused to goo in to constatinoble vnto hym. capo. xxxv
 
-1. Of the descripcion of constantinoble / And of many countre•• and londes ther aboute capitulo xxxvjo.
+    _ Of the descripcion of constantinoble / And of many countre•• and londes ther aboute capitulo xxxvjo.
 
-1. How our peple brente theyr lodgys and toke theyr harnoys And of an assault that the grekes made on them / cao. xxxvijo.
+    _ How our peple brente theyr lodgys and toke theyr harnoys And of an assault that the grekes made on them / cao. xxxvijo.
 
-1. How after this our peple began to destroye the contre. And ofa message of buymont vnto duc godefroye. And the answer of the duc vpon the same· capitulo xxxviijo.
+    _ How after this our peple began to destroye the contre. And ofa message of buymont vnto duc godefroye. And the answer of the duc vpon the same· capitulo xxxviijo.
 
-1. How themperour appesed the duc godefroye and sen•e for hym and of the honour that he dyde to hym. capitulo / xxxix
+    _ How themperour appesed the duc godefroye and sen•e for hym and of the honour that he dyde to hym. capitulo / xxxix
 
-1. Of the yeftes that themperour made to duc godefroye. to the barons and to the gentilmen of his hoost·capitulo xlo.
+    _ Of the yeftes that themperour made to duc godefroye. to the barons and to the gentilmen of his hoost·capitulo xlo.
 
-1. How Buymont was made capitayn of a grete hoost. And the names of many nobles of thoost & of their mayn•ene· cao. xli
+    _ How Buymont was made capitayn of a grete hoost. And the names of many nobles of thoost & of their mayn•ene· cao. xli
 
-1. Messagers and letres fro Themperour to Buymont / and the
+    _ Messagers and letres fro Themperour to Buymont / and the
 
 contenue of the same as foloweth. capitulo xlijo.
 
-1. How Buymont approuched coustantinoble and was sente to come to themperour. And how by the prayer of duc Godefroye he wente toward hym / capitulo xliijo.
+    _ How Buymont approuched coustantinoble and was sente to come to themperour. And how by the prayer of duc Godefroye he wente toward hym / capitulo xliijo.
 
-1. How the erle Robert of fflaundres with his hooste approched Constantynoble. And how themperour sente for hym / And of theyr deuyses to gydre / capo. xliiijo.
+    _ How the erle Robert of fflaundres with his hooste approched Constantynoble. And how themperour sente for hym / And of theyr deuyses to gydre / capo. xliiijo.
 
-1. Of the mayntien̄ of the hooste that therle of Tholouse and the bisshop of puy brought ouer see. capo. xlvo.
+    _ Of the mayntien̄ of the hooste that therle of Tholouse and the bisshop of puy brought ouer see. capo. xlvo.
 
-1. Ambassadours of themperour to the sayd Erle and bisshop / And of the contenue of his lettres / And of the daunger wherin the said bisshop was thenne / capitulo xlv•o.
+    _ Ambassadours of themperour to the sayd Erle and bisshop / And of the contenue of his lettres / And of the daunger wherin the said bisshop was thenne / capitulo xlv•o.
 
-1. How the Erle of Tholouse beyng with themperour wold not do hōmage to hym. & of the despyte that themperour dyde / ca / xlvijo.
+    _ How the Erle of Tholouse beyng with themperour wold not do hōmage to hym. & of the despyte that themperour dyde / ca / xlvijo.
 
-1. How themperour for tauenge hym on therle / made his Conestables tenbusshe them / & assaylle the hoost of therle / ca xlviijo.
+    _ How themperour for tauenge hym on therle / made his Conestables tenbusshe them / & assaylle the hoost of therle / ca xlviijo.
 
-1. How at thynstaunt prayer of the barons of the hooste / The Erle made hommage to themperour / whiche gaf grete yeftes to hym and his· Capitulo xlixo.
+    _ How at thynstaunt prayer of the barons of the hooste / The Erle made hommage to themperour / whiche gaf grete yeftes to hym and his· Capitulo xlixo.
 
-1. Of the situacion of Nycene / And how our peple approched ther to / Merueyllyng of the place and of the strengthe / capo. lijo.
+    _ Of the situacion of Nycene / And how our peple approched ther to / Merueyllyng of the place and of the strengthe / capo. lijo.
 
-1. How the puyssaunt Turke Solyman with a grete hoost aduysed tyme and houre to assayle and smyte on our peple for to reyse the siege / Capitulo liiio.
+    _ How the puyssaunt Turke Solyman with a grete hoost aduysed tyme and houre to assayle and smyte on our peple for to reyse the siege / Capitulo liiio.
 
-1. How Solyman beyng in the montaynes sente his messagers to them of the toun & of the comfort that he gaf to them. cao. liiijo
+    _ How Solyman beyng in the montaynes sente his messagers to them of the toun & of the comfort that he gaf to them. cao. liiijo
 
-1. How the messagers of Solyman were taken by our men. and by them was knowen the couyne of the sayd solyman· capo. lvo.
+    _ How the messagers of Solyman were taken by our men. and by them was knowen the couyne of the sayd solyman· capo. lvo.
 
-1. How a grete bataylle of Solyman cam smyte vpon our peple And of thende of the scarmuche· capitulo lvjo.
+    _ How a grete bataylle of Solyman cam smyte vpon our peple And of thende of the scarmuche· capitulo lvjo.
 
-1. How oure barons were lodged in the sayd siege / of their mayntene / And how euery daye they enforced them tassaylle the toun / Capitulo lvijo.
+    _ How oure barons were lodged in the sayd siege / of their mayntene / And how euery daye they enforced them tassaylle the toun / Capitulo lvijo.
 
-1. How our barons made theyr castellys of tree and approuched the toun· And how they within the toun. brake one of them and slewe them with Inne· Capitulo lviij
+    _ How our barons made theyr castellys of tree and approuched the toun· And how they within the toun. brake one of them and slewe them with Inne· Capitulo lviij
 
-1. Of the coūseyl that our men toke for tassiege the toun by wat•• for to constreyne them not for to entre ne yssue / capo. lixo.
+    _ Of the coūseyl that our men toke for tassiege the toun by wat•• for to constreyne them not for to entre ne yssue / capo. lixo.
 
-1. How after the Cyte was assyeged by water and by londe· oure men assaylled it / And of a Shotte that Duc Godeffroye dyde. Capitulo / lxo.
+    _ How after the Cyte was assyeged by water and by londe· oure men assaylled it / And of a Shotte that Duc Godeffroye dyde. Capitulo / lxo.
 
-1. How after many assaultes oure men beyng in Counseyl. A••mbard cam to them whiche offred to make an engyne that shold destroye the toun. capitulo / lxjo
+    _ How after many assaultes oure men beyng in Counseyl. A••mbard cam to them whiche offred to make an engyne that shold destroye the toun. capitulo / lxjo
 
-1. How after that this engyn had so wel wrought / The wy• of solyman with two of her childeren wente out of the toun and were taken by our men / capo. lxijo.
+    _ How after that this engyn had so wel wrought / The wy• of solyman with two of her childeren wente out of the toun and were taken by our men / capo. lxijo.
 
-1. How themperour sente grete barons for to receyue the sayd toun after that our peple had acerteyned hym that they wolde yelde it / Capitulo / lxiij
+    _ How themperour sente grete barons for to receyue the sayd toun after that our peple had acerteyned hym that they wolde yelde it / Capitulo / lxiij
 
-1. How our hooost departed on theyr iourney / & how som departed fro theyr felawship / and how solyman determyned tassayle them / Capitulo lxiiiio.
+    _ How our hooost departed on theyr iourney / & how som departed fro theyr felawship / and how solyman determyned tassayle them / Capitulo lxiiiio.
 
-1. Of the bataylle that solyman had ayenst som of our peple that were departed fro theyr felawship folyly / cao. lxvo.
+    _ Of the bataylle that solyman had ayenst som of our peple that were departed fro theyr felawship folyly / cao. lxvo.
 
-1. Of the dilygence that Duc Godeffroy made whan he was aduertised herof / And how Solyman was discomfyt & his ba•gage taken· Capitulo lxvjo.
+    _ Of the dilygence that Duc Godeffroy made whan he was aduertised herof / And how Solyman was discomfyt & his ba•gage taken· Capitulo lxvjo.
 
-1. How the iiij day after this victorye our peple went forth on their waye / & of the grete mesease of thoost the same day / capo. lxvijo.
+    _ How the iiij day after this victorye our peple went forth on their waye / & of the grete mesease of thoost the same day / capo. lxvijo.
 
-1. How somme of the grete Barons of thoost after to haue approuched Antyoche the lasse departed for to goo vytaylle them Capitulo lxviijo.
+    _ How somme of the grete Barons of thoost after to haue approuched Antyoche the lasse departed for to goo vytaylle them Capitulo lxviijo.
 
-1. Here recounteth thystorye of somme aduentures that thenne fylle in the hoost of cristen men / capo. lxixo
+    _ Here recounteth thystorye of somme aduentures that thenne fylle in the hoost of cristen men / capo. lxixo
 
-1. How Tancre that was departed fro the hoost assieged Tarse / And toke it by certeyn couenaunt. capo. lxxo.
+    _ How Tancre that was departed fro the hoost assieged Tarse / And toke it by certeyn couenaunt. capo. lxxo.
 
-1. How Bawdwyn brother of Godeffroy sechyng his auentures sawe tācre & his peple to fore tarse & adressed hym to them / ca / lxxj
+    _ How Bawdwyn brother of Godeffroy sechyng his auentures sawe tācre & his peple to fore tarse & adressed hym to them / ca / lxxj
 
-1. Of thenuye that bawdwyn & his peple had to see the baner of tancre vpon the walle of the toun / & how tancre departed ca / lxxijo.
+    _ Of thenuye that bawdwyn & his peple had to see the baner of tancre vpon the walle of the toun / & how tancre departed ca / lxxijo.
 
-1. How a lytil after tancre cam to the cyte of anamystre whiche the turkes helde it and toke it by assault / capo. lxxiijo.
+    _ How a lytil after tancre cam to the cyte of anamystre whiche the turkes helde it and toke it by assault / capo. lxxiijo.
 
-1. How bawdwyn entred in Tarse· And how / .iij.C of our pylgryms were slayn of the turkes to fore the same toun· ca olxxiiij
+    _ How bawdwyn entred in Tarse· And how / .iij.C of our pylgryms were slayn of the turkes to fore the same toun· ca olxxiiij
 
-1. How the peple of bawdwyn knewe the departyng of the turkes and of the slaughter of the cristen men· capo. lxxvo.
+    _ How the peple of bawdwyn knewe the departyng of the turkes and of the slaughter of the cristen men· capo. lxxvo.
 
-1. How the sayd Bawdwyn retorned to the grete hooste / And how Tancre mayntenyd hym moche wel in conqueryng contrees Capitulo lxxvjo.
+    _ How the sayd Bawdwyn retorned to the grete hooste / And how Tancre mayntenyd hym moche wel in conqueryng contrees Capitulo lxxvjo.
 
-1. How bawdwyn conquerd a grete contre vpon the turkes by the counseyl of a knyght bermyn named panc•ace / cao. lxxvijo
+    _ How bawdwyn conquerd a grete contre vpon the turkes by the counseyl of a knyght bermyn named panc•ace / cao. lxxvijo
 
-1. How they of rages sente theyr messagers to bawdwyn prayeng hym that he wold come to them· capo. lxxviijo.
+    _ How they of rages sente theyr messagers to bawdwyn prayeng hym that he wold come to them· capo. lxxviijo.
 
-1. How the duc that was at rages varyed for to holde this that he had promysed to Bawdwyn / capitulo lxxixo.
+    _ How the duc that was at rages varyed for to holde this that he had promysed to Bawdwyn / capitulo lxxixo.
 
-1. How Bawdwyn wente to assaylle famosette the cyte nyghe to Rages / Capitulo lxxxo.
+    _ How Bawdwyn wente to assaylle famosette the cyte nyghe to Rages / Capitulo lxxxo.
 
-1. How they of the toun of rages slewe theyr duc· and chees bawdwyn for to be theyr lord / capo. lxxxjo.
+    _ How they of the toun of rages slewe theyr duc· and chees bawdwyn for to be theyr lord / capo. lxxxjo.
 
-1. How bawdwyn wente and assieged the toun of serorge nygh to rages and tokeit / And of his ordenaunces· capo. lxxxijo.
+    _ How bawdwyn wente and assieged the toun of serorge nygh to rages and tokeit / And of his ordenaunces· capo. lxxxijo.
 
-1. How the grete hoost cam to fore mares•. And how the turkes that were within fledde. And how our peple payned them to conquere countrees / capitulo lxxxiijo.
+    _ How the grete hoost cam to fore mares•. And how the turkes that were within fledde. And how our peple payned them to conquere countrees / capitulo lxxxiijo.
 
-1. How it was commaunded vnto alle the barons to come 〈◊〉 thoost for to goo vn to anthyoche and of som recountres that 〈◊〉 had in the waye / capo. lxxx••o.
+    _ How it was commaunded vnto alle the barons to come 〈◊〉 thoost for to goo vn to anthyoche and of som recountres that 〈◊〉 had in the waye / capo. lxxx••o.
 
-1. How Antyoche by succession of tyme had dyuerse names and of the noblesse of auncyente / capo. lxxxvo.
+    _ How Antyoche by succession of tyme had dyuerse names and of the noblesse of auncyente / capo. lxxxvo.
 
-1. Of the situacion of Anthyoche· capitulo lxxxvjo
+    _ Of the situacion of Anthyoche· capitulo lxxxvjo
 
-1. Who that was thenne lord of antyoche / And in what manere he was comen vnto this seygnorye / capo. lxxxvijo.
+    _ Who that was thenne lord of antyoche / And in what manere he was comen vnto this seygnorye / capo. lxxxvijo.
 
-1. Dyuerse oppynyon of our men to fore they assieged Anthyoche / And how they acorded alle for tassiege it / capo lxxxviijo.
+    _ Dyuerse oppynyon of our men to fore they assieged Anthyoche / And how they acorded alle for tassiege it / capo lxxxviijo.
 
-1. How after the situacion of the toun eche of the hye barons of the hoost were lodged at the sayd siege· capo. lxxxixo.
+    _ How after the situacion of the toun eche of the hye barons of the hoost were lodged at the sayd siege· capo. lxxxixo.
 
-1. How our peple assembled in counseyl for to fynde the moyen for to sende for vytaylle / & of a brydge that they made· cao. / lxxxx
+    _ How our peple assembled in counseyl for to fynde the moyen for to sende for vytaylle / & of a brydge that they made· cao. / lxxxx
 
-1. How our peple stopped a yate of the toun without forth / And of a castel of tree that they made· capo. lxxxx•o.
+    _ How our peple stopped a yate of the toun without forth / And of a castel of tree that they made· capo. lxxxx•o.
 
-1. How our peple were in grete meschyef for as moche as they of the toune yssuedandentred in and oute with grete rowtes Capitulo lxxxxijo.
+    _ How our peple were in grete meschyef for as moche as they of the toune yssuedandentred in and oute with grete rowtes Capitulo lxxxxijo.
 
-1. Of the famyne and mortalyte of thoost after that they had be at the sayd siege the space of two monethes· capo. lxxxxiijo.
+    _ Of the famyne and mortalyte of thoost after that they had be at the sayd siege the space of two monethes· capo. lxxxxiijo.
 
-1. How our peple ordeyned grete rowtes for to goo for vytayll. & to reteyne the peple which fled for hungre / cao. lxxxxiiijo.
+    _ How our peple ordeyned grete rowtes for to goo for vytayll. & to reteyne the peple which fled for hungre / cao. lxxxxiiijo.
 
-1. How buymont and therle of fflaundres mayntened hem beyng in fourage / Of theyr recountrees and of the gayne that they made. Capitulo lxxxxvo.
+    _ How buymont and therle of fflaundres mayntened hem beyng in fourage / Of theyr recountrees and of the gayne that they made. Capitulo lxxxxvo.
 
-1. How a grete rowte of Cristen men were in this tyme slayn by the turkes bytwene fynemyue and terme / capo. lxxxxvjo.
+    _ How a grete rowte of Cristen men were in this tyme slayn by the turkes bytwene fynemyue and terme / capo. lxxxxvjo.
 
-1. How the vntrew greek latyus departed fraudelously fro the h• o•t· And other moo by thensample of hym / capo. lxxxxvij
+    _ How the vntrew greek latyus departed fraudelously fro the h• o•t· And other moo by thensample of hym / capo. lxxxxvij
 
-1. How the prelates of the hoost counseylled to doo penaunce for tappese god· And of thordenaunces that were made teschewe synne / Capitulo. lxxxxviijo.
+    _ How the prelates of the hoost counseylled to doo penaunce for tappese god· And of thordenaunces that were made teschewe synne / Capitulo. lxxxxviijo.
 
-1. How Buymont fonde a subtil remydye for to delyuer and purge the hooost of the espyes of the turkes / capo. lxxxxixo.
+    _ How Buymont fonde a subtil remydye for to delyuer and purge the hooost of the espyes of the turkes / capo. lxxxxixo.
 
-1. How the Caleph• of Egypte sente his messagers with grete y•ftes vnto our hoost / Capitulo Co.
+    _ How the Caleph• of Egypte sente his messagers with grete y•ftes vnto our hoost / Capitulo Co.
 
-1. How Ancean the lord of anthyoche and his barons sente vnto the turkes theyr neyghbours for to demaunde socours / capo. Cjo.
+    _ How Ancean the lord of anthyoche and his barons sente vnto the turkes theyr neyghbours for to demaunde socours / capo. Cjo.
 
-1. How oure peple knewe the couyne of the turkes / of thenbusshe
+    _ How oure peple knewe the couyne of the turkes / of thenbusshe
 
 that they made and of their victorye and gayne that they had Capitulo Cijo.
 
-1. How the turkesof Anthyoche sprange out and assaylled the lodgys of our peple. Capitulo Ciijo.
+    _ How the turkesof Anthyoche sprange out and assaylled the lodgys of our peple. Capitulo Ciijo.
 
-1. Of a castel that our men made of somme pylgryms that arryued at the porte and how they were discomfyted by a busshement of turkes / capo. Ciiijo.
+    _ Of a castel that our men made of somme pylgryms that arryued at the porte and how they were discomfyted by a busshement of turkes / capo. Ciiijo.
 
-1. Of a batayll where our men auenged them of the turkes / and of a stroke that duc godeffroy gaf in this bataylle· capo. Cvo.
+    _ Of a batayll where our men auenged them of the turkes / and of a stroke that duc godeffroy gaf in this bataylle· capo. Cvo.
 
-1. How the Cristen men thanked oure lord of this vyctorye / And made a Castel in theyr mahommerye. where there they fonde grete gayne· Capitulo Cvjo.
+    _ How the Cristen men thanked oure lord of this vyctorye / And made a Castel in theyr mahommerye. where there they fonde grete gayne· Capitulo Cvjo.
 
-1. Of a fortresse that Tancre made ouer the Ryuer and de•ended it valyauntly· capitulo Cvijo
+    _ Of a fortresse that Tancre made ouer the Ryuer and de•ended it valyauntly· capitulo Cvijo
 
-1. How thenne the turkes of the toun began to haue mesease and sorowe / And our peple ease / Capitulo Cviijo.
+    _ How thenne the turkes of the toun began to haue mesease and sorowe / And our peple ease / Capitulo Cviijo.
 
-1. How the Erle Estyeuen of Chartres and of Bloys fledde
+    _ How the Erle Estyeuen of Chartres and of Bloys fledde
 
 fro the hooste shamefully / Capitulo Cixo.
 
-1. How a Cristen man Emyrferins whiche was in Anthyoche
+    _ How a Cristen man Emyrferins whiche was in Anthyoche
 
 acqueynted hym with Buymont / cao. Cxo.
 
-1. Of somme deuyses that the sayd Emyrferius sente to buymont & in what maner he acorded to delyuer to hym the toun· cao Cxjo.
+    _ Of somme deuyses that the sayd Emyrferius sente to buymont & in what maner he acorded to delyuer to hym the toun· cao Cxjo.
 
-1. How buymont discouerd this thynge to duc godeffroy to hu•on the mayne to the duc of Normandye and to therle of fflaundres / Capitulo / C / xijo.
+    _ How buymont discouerd this thynge to duc godeffroy to hu•on the mayne to the duc of Normandye and to therle of fflaundres / Capitulo / C / xijo.
 
-1. Of the grete socours that the Soudan of perse had sente to them
+    _ Of the grete socours that the Soudan of perse had sente to them
 
 of •nthyoche and how C••hagat assyeged rages / capitulo / Cxiijo.
 
-1. How our men beyng aduertysed of the grete hoooste of corbagat sente somme of theyr knyghtes for to esteme them / And what they reported of that they had seen / cao. Cxiiijo
+    _ How our men beyng aduertysed of the grete hoooste of corbagat sente somme of theyr knyghtes for to esteme them / And what they reported of that they had seen / cao. Cxiiijo
 
-1. Of the counseyl that our peple toke for to ordeyne theyr nedes whan they knewe the comyng of this right grete hooost / cao. Cxvo.
+    _ Of the counseyl that our peple toke for to ordeyne theyr nedes whan they knewe the comyng of this right grete hooost / cao. Cxvo.
 
-1. How after that Buymont had declared his fayte to alle the hooste· they acorded that the toun shold be his / sauf the Erle of Tholouse / Capitulo Cxvjo.
+    _ How after that Buymont had declared his fayte to alle the hooste· they acorded that the toun shold be his / sauf the Erle of Tholouse / Capitulo Cxvjo.
 
-1. How they of Anthyoche had fere of treson / And how they assembled in counseyl / And of that whiche Emyrferius deposed there at / Capitulo .C / xvijo.
+    _ How they of Anthyoche had fere of treson / And how they assembled in counseyl / And of that whiche Emyrferius deposed there at / Capitulo .C / xvijo.
 
-1. Of the meschyef that the turkes made euery daye to the cristen men that were in Anthyoche enhabytyng with them· cao. Cxviijo.
+    _ Of the meschyef that the turkes made euery daye to the cristen men that were in Anthyoche enhabytyng with them· cao. Cxviijo.
 
-1. Of the dilygence that buymont made in this werke / And how Emyrferyus slewe his brother and delyuerd the toun to the cristen men / Capitulo Cxixo.
+    _ Of the dilygence that buymont made in this werke / And how Emyrferyus slewe his brother and delyuerd the toun to the cristen men / Capitulo Cxixo.
 
-1. Of the mayntene of the cristen men in this pryse. And of the affraye of the turkes of the toun· cao. .C.xxo
+    _ Of the mayntene of the cristen men in this pryse. And of the affraye of the turkes of the toun· cao. .C.xxo
 
-1. How Ancean lord of authyoche fledde by a posterne out of the toun· And he was recountred and put to deth. cao. Cxxjo.
+    _ How Ancean lord of authyoche fledde by a posterne out of the toun· And he was recountred and put to deth. cao. Cxxjo.
 
-1. How aftir that our men had made grete slaughter of theyr enemyes our men helde counseyl for to take the dongeon / thēne beyng seased of the turkes / cao. ·C·xxijo.
+    _ How aftir that our men had made grete slaughter of theyr enemyes our men helde counseyl for to take the dongeon / thēne beyng seased of the turkes / cao. ·C·xxijo.
 
-1. How whyles thooste garnysshed the toun· Somme of thoost of Crobagat cam rennyng to fore it. capo. .C.xxiijo.
+    _ How whyles thooste garnysshed the toun· Somme of thoost of Crobagat cam rennyng to fore it. capo. .C.xxiijo.
 
-1. How the thyrde day after the getynge and pryse of Anthyoche Corbagat with his hoost arryued to fore it. cao. Cxxiiijo.
+    _ How the thyrde day after the getynge and pryse of Anthyoche Corbagat with his hoost arryued to fore it. cao. Cxxiiijo.
 
-1. How after that the duc was within the barres of the toun / and many of his men slayn. the turkes entred in to the toun / cao. C·xxv
+    _ How after that the duc was within the barres of the toun / and many of his men slayn. the turkes entred in to the toun / cao. C·xxv
 
-1. How our cristen men that a lytil to fore assieged the toun / were now assieged in the same / Capitulo Cxxvjo
+    _ How our cristen men that a lytil to fore assieged the toun / were now assieged in the same / Capitulo Cxxvjo
 
-1. How Corbagat dyde do assaylle a fortresse which therle of Flaūdres kepte without the gate and of that enslewed / cao. Cxxvijo
+    _ How Corbagat dyde do assaylle a fortresse which therle of Flaūdres kepte without the gate and of that enslewed / cao. Cxxvijo
 
-1. Of the grete famyne and mesease that oure men suffred in the cyte of Anthyoche beyng assyeged on alle sydes by the sayd Corbagat / Capitulo C.xxviijo.
+    _ Of the grete famyne and mesease that oure men suffred in the cyte of Anthyoche beyng assyeged on alle sydes by the sayd Corbagat / Capitulo C.xxviijo.
 
-1. How the turkes felyng that our men were in suche meschyef of hongre. enforced them for tassaylle the cyte / cao. Cxxix
+    _ How the turkes felyng that our men were in suche meschyef of hongre. enforced them for tassaylle the cyte / cao. Cxxix
 
-1. How Corbagat sente his men of Armes for to slee the maronners that were at the porte / wherof oure men had a grete losse Capitulo ·C.xxxo.
+    _ How Corbagat sente his men of Armes for to slee the maronners that were at the porte / wherof oure men had a grete losse Capitulo ·C.xxxo.
 
-1. How guyllem de grateuylle and his felaws fugytyfs ca m in to Allexandrye the lasse / cao. Cxxxjo.
+    _ How guyllem de grateuylle and his felaws fugytyfs ca m in to Allexandrye the lasse / cao. Cxxxjo.
 
-1. How therle of chartres discoraged themperour of Constantinople that he shold not goo and socoure our peple in Anthyoche Capitulo C▪xxxijo.
+    _ How therle of chartres discoraged themperour of Constantinople that he shold not goo and socoure our peple in Anthyoche Capitulo C▪xxxijo.
 
-1. How by the warnynges of the sayd Erle / themperour. whiche wold haue goon & socoured our men· retorned shortly. cao. Cxxxiij
+    _ How by the warnynges of the sayd Erle / themperour. whiche wold haue goon & socoured our men· retorned shortly. cao. Cxxxiij
 
-1. How our peple of Anthyoche beyng aduertysed herof were all discouraged And Corbagat enhaunced in pryde / cao. Cxxxiiijo.
+    _ How our peple of Anthyoche beyng aduertysed herof were all discouraged And Corbagat enhaunced in pryde / cao. Cxxxiiijo.
 
-1. How the spere was fonnden of whiche Ihesus was percyd on the crosse· And of the comfort that our pylgryms toke therby Capitulo Cxxxvo.
+    _ How the spere was fonnden of whiche Ihesus was percyd on the crosse· And of the comfort that our pylgryms toke therby Capitulo Cxxxvo.
 
-1. How Peter theremyte was sente by our men vnto Corbagat / the wordes what he sayde· And the answer of the sayd Corbagat Capitulo Cxxxvjo.
+    _ How Peter theremyte was sente by our men vnto Corbagat / the wordes what he sayde· And the answer of the sayd Corbagat Capitulo Cxxxvjo.
 
-1. How the sayd Peter retorned in to the toun. and wold openly haue sayd his message / & of the subtyl counseyll of the duc whiche wold not suffre it / cao. C·xxxvijo.
+    _ How the sayd Peter retorned in to the toun. and wold openly haue sayd his message / & of the subtyl counseyll of the duc whiche wold not suffre it / cao. C·xxxvijo.
 
-1. How to fore er our men departed / they made redy theyr bataylles right wel in poynt / & of the nombre of them / cao.·C.xxxviijo.
+    _ How to fore er our men departed / they made redy theyr bataylles right wel in poynt / & of the nombre of them / cao.·C.xxxviijo.
 
-1. How Corbagat was aduertysed of thyssue of oure peple and sente his Archiers for to deffende the brydge. And how they were disconfyted· Capitulo / Cxxxixo.
+    _ How Corbagat was aduertysed of thyssue of oure peple and sente his Archiers for to deffende the brydge. And how they were disconfyted· Capitulo / Cxxxixo.
 
-1. How oure men reioysed them of a dew or rousee descendyng
+    _ How oure men reioysed them of a dew or rousee descendyng
 thenne fro heuen. And of theyr mayntyen in approchyng the turkes. Capitulo C / xl
 
-1. How Corbagat ordeyned his bataylles / And how the two hoostes marched to gydre in bataylle. / C.xljo.
+    _ How Corbagat ordeyned his bataylles / And how the two hoostes marched to gydre in bataylle. / C.xljo.
 
-1. Of the fayre ordenaunces that oure peple made in the chirches of Anthyoche. And in other townes by / after this vyctorye Capitulo Cxliiijo.
+    _ Of the fayre ordenaunces that oure peple made in the chirches of Anthyoche. And in other townes by / after this vyctorye Capitulo Cxliiijo.
 
-1. How our peple sente ambassadours to themperour of Constantinople for to somone hym to come and socoure them as he had promysed. Capitulo C / xlvo.
+    _ How our peple sente ambassadours to themperour of Constantinople for to somone hym to come and socoure them as he had promysed. Capitulo C / xlvo.
 
-1. How the pylgryms of thoost desired to goo vnto Iherusalem for to eschewe the mortalite· & taccōplisshe their vowe / cao. Cxlvjo.
+    _ How the pylgryms of thoost desired to goo vnto Iherusalem for to eschewe the mortalite· & taccōplisshe their vowe / cao. Cxlvjo.
 
-1. The dylygence that duc godeffroy made for to socoure a turke to whom he hadpromysed / And how he reysed the siege beyng to fore his castell. cao. Cxlvijo
+    _ The dylygence that duc godeffroy made for to socoure a turke to whom he hadpromysed / And how he reysed the siege beyng to fore his castell. cao. Cxlvijo
 
-1. Of somme pylgryms goyng fro Anthyoche toward godeffroy were discōfyted by the turkes / & rescowed by the duc· cao. C / xlviij
+    _ Of somme pylgryms goyng fro Anthyoche toward godeffroy were discōfyted by the turkes / & rescowed by the duc· cao. C / xlviij
 
-1. How the Duc alway enforced hym to augmente Ca•••ente. And of somme fortresses by hym •eten and destroyed cao Cxl•xo.
+    _ How the Duc alway enforced hym to augmente Ca•••ente. And of somme fortresses by hym •eten and destroyed cao Cxl•xo.
 
-1. How the knyghtes of Rages wolde haue betrayed Bawdwyn theyr lord. And how he was therof aduertysed· cao. C.L
+    _ How the knyghtes of Rages wolde haue betrayed Bawdwyn theyr lord. And how he was therof aduertysed· cao. C.L
 
-1. How therle Bawdwyn was in daunger of deth by t•e treson of a turk named Balac / Capitulo C.L•o.
+    _ How therle Bawdwyn was in daunger of deth by t•e treson of a turk named Balac / Capitulo C.L•o.
 
-1. How therle of tholouse toke the cyte of Albane· And t•ere constitued a bisshop / capitulo CLiio.
+    _ How therle of tholouse toke the cyte of Albane· And t•ere constitued a bisshop / capitulo CLiio.
 
-1. How our peple retorned in to Anthyoche· and toke counseyl for to goo to Iherusalem. and of this that foloweth. cao. Cliijo.
+    _ How our peple retorned in to Anthyoche· and toke counseyl for to goo to Iherusalem. and of this that foloweth. cao. Cliijo.
 
-1. How the duc Godeffroy wold goo to rages to vysyte his brother er he began his way to Iherusalem / And of somme of his aduentures / cao. CLiiij
+    _ How the duc Godeffroy wold goo to rages to vysyte his brother er he began his way to Iherusalem / And of somme of his aduentures / cao. CLiiij
 
-1. How after that the cyte of Albare was conquerd a grete debate aroos btywene therle of tholouse and buymont. cao. CLv
+    _ How after that the cyte of Albare was conquerd a grete debate aroos btywene therle of tholouse and buymont. cao. CLv
 
-1. How atte request of the comyn peple the erle of tholouse ordeyned day for to conduyte them / cao CLvj
+    _ How atte request of the comyn peple the erle of tholouse ordeyned day for to conduyte them / cao CLvj
 
-1. How therle of tholouse approuched with his hoost vnto archis And of the situacion of the same· cao. CLviijo.
+    _ How therle of tholouse approuched with his hoost vnto archis And of the situacion of the same· cao. CLviijo.
 
-1. Of a toun named tortuose whiche Raymont toke with a Rowte of pylgryms· And of the departynge of the other barons fro Anthyoche / Capitulo CLixo.
+    _ Of a toun named tortuose whiche Raymont toke with a Rowte of pylgryms· And of the departynge of the other barons fro Anthyoche / Capitulo CLixo.
 
-1. How the duc assieged Gybelet and of a trayson by whiche he lefte the siege / cao. CLxo
+    _ How the duc assieged Gybelet and of a trayson by whiche he lefte the siege / cao. CLxo
 
-1. How thoost murmured of the spere founden in Anthyoche / & of the grete myracle that happed in the presence of alle the hoste Capitulo CLxjo.
+    _ How thoost murmured of the spere founden in Anthyoche / & of the grete myracle that happed in the presence of alle the hoste Capitulo CLxjo.
 
-1. Of thamabassade of Egipte com•n with our men in to thooste of pylgryms / & of the reuerence that was don to them / cao. / C / lxijo.
+    _ Of thamabassade of Egipte com•n with our men in to thooste of pylgryms / & of the reuerence that was don to them / cao. / C / lxijo.
 
-1. Of an ambassade fro themperour of constantinoble comen to our pylgryms / & of thanswer to the sayd ambassade / ca Clxiijo.
+    _ Of an ambassade fro themperour of constantinoble comen to our pylgryms / & of thanswer to the sayd ambassade / ca Clxiijo.
 
-1. How the comyn peple complayned them / of this that they wente not hastely to Iherusalem· cao. Clxiiijo.
+    _ How the comyn peple complayned them / of this that they wente not hastely to Iherusalem· cao. Clxiiijo.
 
-1. Of the grete dylygence that our men made for to approche to Iherusalem / & of thalyaunces of somme turkes made vnto them Capitulo CLvo.
+    _ Of the grete dylygence that our men made for to approche to Iherusalem / & of thalyaunces of somme turkes made vnto them Capitulo CLvo.
 
-1. How the Cristen men of bethlehem receyued moche wel Tancre and his rowte. And sette his baner on the chirche of our lady Capitulo CLxvjo.
+    _ How the Cristen men of bethlehem receyued moche wel Tancre and his rowte. And sette his baner on the chirche of our lady Capitulo CLxvjo.
 
-1. Of thardaunt desire that the peple had for to see Iherusalem / And how the hoost approchedand were lodged by ordenaunce Capitulo· CLxvijo.
+    _ Of thardaunt desire that the peple had for to see Iherusalem / And how the hoost approchedand were lodged by ordenaunce Capitulo· CLxvijo.
 
-1. Of the situacion of Iherusalem and descripcion / and also of many other cytees townes & countrees ther aboute. cao. CLxviijo.
+    _ Of the situacion of Iherusalem and descripcion / and also of many other cytees townes & countrees ther aboute. cao. CLxviijo.
 
-1. How Iherusalem had many names after dyuerse lordes therin
+    _ How Iherusalem had many names after dyuerse lordes therin
 ••nnyng and yet of the situacion wel at a longe / cao. Clxix•
 
-1. Here thystorye deuyseth of many merueyllous edyfyces conteyned in the same Cyte of Iherusalem. And who made them. Capitulo Clxxo.
+    _ Here thystorye deuyseth of many merueyllous edyfyces conteyned in the same Cyte of Iherusalem. And who made them. Capitulo Clxxo.
 
-1. How the turkes of Ihelm whan they knewe the comyng of our hooste stopped the pyttes and fontaynes of the toun. cao. Clxxjo.
+    _ How the turkes of Ihelm whan they knewe the comyng of our hooste stopped the pyttes and fontaynes of the toun. cao. Clxxjo.
 
-1. Of the nombre of them of thoost / of them of Iherusalem. and how oure men lodged them in the siege to fore Iherusalem / Capitulo Clxxijo.
+    _ Of the nombre of them of thoost / of them of Iherusalem. and how oure men lodged them in the siege to fore Iherusalem / Capitulo Clxxijo.
 
-1. How oure men began tassaylle Iherusalem / And of the grete dilygēce that they dyde to make engyns for to take it / cao. Clxxiijo.
+    _ How oure men began tassaylle Iherusalem / And of the grete dilygēce that they dyde to make engyns for to take it / cao. Clxxiijo.
 
-1. How our peple were in grete meschyef at the sayd siege & how the turkes deserted them by cause they myght entre and yssue in and out of the toun· cao. Clxxiiij
+    _ How our peple were in grete meschyef at the sayd siege & how the turkes deserted them by cause they myght entre and yssue in and out of the toun· cao. Clxxiiij
 
-1. How the turkes enforced them to make merueylleous engyns ayenst the owres· And of the meschyef that they dyde to the cristen men that dwellyd in the toun. cao. Clxxvo.
+    _ How the turkes enforced them to make merueylleous engyns ayenst the owres· And of the meschyef that they dyde to the cristen men that dwellyd in the toun. cao. Clxxvo.
 
-1. In this tyme arryued a shippe of. Gent wys atte porte of halappe / and how theyr messagers cam in thoost. and how to the barons they made theyr requeste· Capitulo / Clxxvjo.
+    _ In this tyme arryued a shippe of. Gent wys atte porte of halappe / and how theyr messagers cam in thoost. and how to the barons they made theyr requeste· Capitulo / Clxxvjo.
 
-1. How alle the pylgryms eueryche after his estate payned them to make thengyns for thassault. cao. Clxxvijo.
+    _ How alle the pylgryms eueryche after his estate payned them to make thengyns for thassault. cao. Clxxvijo.
 
-1. Of the fayr processions that oure pylgryms made to thende that god shold gyue them vyctorye / and how they pardonned eche other theyr mal talentes and euyll wylles / cao. ·Clxxviij
+    _ Of the fayr processions that oure pylgryms made to thende that god shold gyue them vyctorye / and how they pardonned eche other theyr mal talentes and euyll wylles / cao. ·Clxxviij
 
-1. How oure men sodenly transported in the nyght theyr engyns vnto that other part of the toun for tassaylle on that side Capitulo / Clxxixo.
+    _ How oure men sodenly transported in the nyght theyr engyns vnto that other part of the toun for tassaylle on that side Capitulo / Clxxixo.
 
-1. How the day folowyng our peple made a merueyllous assault And how the turkes defended them subtylly and wel Capitulo Clxxxo.
+    _ How the day folowyng our peple made a merueyllous assault And how the turkes defended them subtylly and wel Capitulo Clxxxo.
 
-1. The nyght departed the sayd assault Our peple withdrewe them / and how they watched wel theyr engyns / and the turkes the toun / Capitulo Clxxxjo.
+    _ The nyght departed the sayd assault Our peple withdrewe them / and how they watched wel theyr engyns / and the turkes the toun / Capitulo Clxxxjo.
 
-1. How our peple retorned agayn on the morn to thassault / And of the sorceryes that they wold haue charmed one of our engy•s Capitulo Clxxxijo
+    _ How our peple retorned agayn on the morn to thassault / And of the sorceryes that they wold haue charmed one of our engy•s Capitulo Clxxxijo
 
-1. Of the despayr of our peple at the sayd assault· And how they were recomforted by a knyght vnknowen. and euydent myracles· Capitulo / Clxxxiijo.
+    _ Of the despayr of our peple at the sayd assault· And how they were recomforted by a knyght vnknowen. and euydent myracles· Capitulo / Clxxxiijo.
 
-1. How therle of tholouse assaylled vygorously toward the south & of thardaūt desire that eche man had to doo wel· cao Clxxxiiij
+    _ How therle of tholouse assaylled vygorously toward the south & of thardaūt desire that eche man had to doo wel· cao Clxxxiiij
 
-1. Of the pryse and takynge of Iherusalem / And how the Duc godeffroy entred fyrst vpon the walles. And who folowed••ter Capitulo Clxxxvo.
+    _ Of the pryse and takynge of Iherusalem / And how the Duc godeffroy entred fyrst vpon the walles. And who folowed••ter Capitulo Clxxxvo.
 
-1. Of the mayntenyng of our peple entred in to the toun toward the northeest / And therle of tholouse herof alle ygnorant assaylled alle way / cao Clxxxvjo.
+    _ Of the mayntenyng of our peple entred in to the toun toward the northeest / And therle of tholouse herof alle ygnorant assaylled alle way / cao Clxxxvjo.
 
-1. How .x / M. turkes were slayn in the temple / And of the grete tresour that Tancre founde in the sayd temple / cao. Clxxxvijo.
+    _ How .x / M. turkes were slayn in the temple / And of the grete tresour that Tancre founde in the sayd temple / cao. Clxxxvijo.
 
-1. Of the fayr ordenaunces that the Cristen men made to fore they wente for to vnarme them after the toun was taken / Capitulo Clxxxv•ijo.
+    _ Of the fayr ordenaunces that the Cristen men made to fore they wente for to vnarme them after the toun was taken / Capitulo Clxxxv•ijo.
 
-1. How the Cristen men that had charged their message for their delyueraunce to peter theremyte knewe hym / cao. Clxxxixo.
+    _ How the Cristen men that had charged their message for their delyueraunce to peter theremyte knewe hym / cao. Clxxxixo.
 
-1. How they clensed the toun of the dede bodyes Of many other
+    _ How they clensed the toun of the dede bodyes Of many other
 
 ordenaunces. And how the turkes rendred the dongeon vnto the erle of tholouse· Capitulo Clxxxxo.
 
-1. How the hye barons of thoost assembled for to chese a kynge of Iherusalem· And thoppynyon of the clergye vpon the same Capitulo· Clxxxx•o.
+    _ How the hye barons of thoost assembled for to chese a kynge of Iherusalem· And thoppynyon of the clergye vpon the same Capitulo· Clxxxx•o.
 
-1. How the duc Godeffroy was chosen kyng of Iherusalem and how he was presented to our lord in his chirche of the holy sepulcre. capitulo Clxxxxijo.
+    _ How the duc Godeffroy was chosen kyng of Iherusalem and how he was presented to our lord in his chirche of the holy sepulcre. capitulo Clxxxxijo.
 
-1. How the duc godeffroy after his election requyred therle of tholouse that he shold delyuer to hym the tour dauid cao. Clxxxxiij
+    _ How the duc godeffroy after his election requyred therle of tholouse that he shold delyuer to hym the tour dauid cao. Clxxxxiij
 
-1. Of a Patriark chosen and elect in Iherusalem / And how ther was founden a part of the very crosse. Capitulo Clxxxxiiij
+    _ Of a Patriark chosen and elect in Iherusalem / And how ther was founden a part of the very crosse. Capitulo Clxxxxiiij
 
-1. How the duc godeffroy payned hym to amende the Royamme of his good constitucions and estatutes / cao. Clxxxxvo.
+    _ How the duc godeffroy payned hym to amende the Royamme of his good constitucions and estatutes / cao. Clxxxxvo.
 
-1. Of the sayeng of the countesse of boloyne moder of the sayd duc. that she sayde of her thre oldest sones was verified· Capitulo ·Clxxxxvj
+    _ Of the sayeng of the countesse of boloyne moder of the sayd duc. that she sayde of her thre oldest sones was verified· Capitulo ·Clxxxxvj
 
-1. Of the wagyng of a bataylle that was •ytwene the duc godefroy and an hye baron of Almayne. cao. Clxxxxvijo.
+    _ Of the wagyng of a bataylle that was •ytwene the duc godefroy and an hye baron of Almayne. cao. Clxxxxvijo.
 
-1. Of a fayr feat of Arme• that the duc dyde in a bataylle that the Emperour of Almay•e had ayenst them of Saxone Capitulo Clxxxxviijo.
+    _ Of a fayr feat of Arme• that the duc dyde in a bataylle that the Emperour of Almay•e had ayenst them of Saxone Capitulo Clxxxxviijo.
 
-1. How the valyaunt duc godeffroy augmented the holy chirche And how he wold neuer bere crowne· cao. Clxxxx••
+    _ How the valyaunt duc godeffroy augmented the holy chirche And how he wold neuer bere crowne· cao. Clxxxx••
 
-1. How the turkes of Arabe and of Egypte made theyr somaūce for to come in to Surye tassaylle our cristen men / cao. CCo.
+    _ How the turkes of Arabe and of Egypte made theyr somaūce for to come in to Surye tassaylle our cristen men / cao. CCo.
 
-1. How our Cristen men whan they knewe thyse tydynges cryed to god for mercy / and for to haue the vyctorye· cao CCjo.
+    _ How our Cristen men whan they knewe thyse tydynges cryed to god for mercy / and for to haue the vyctorye· cao CCjo.
 
-1. How our men assembled and ordeyned· theyr bataylles for to
+    _ How our men assembled and ordeyned· theyr bataylles for to
 
 fyghte ayenst the turkes. And how the turkes were discon•yted Capitulo / CCijo.
 
-1. How somme of our barons wolde retorne home after they had don theyr pylgremage / cao CCiijo.
+    _ How somme of our barons wolde retorne home after they had don theyr pylgremage / cao CCiijo.
 
-1. How buymont and bawdwyn beyng certayn of the pryse and conqueste of Iherusalem wolde accomplysshe theyr pylgremage / Capitulo. / CC·iiijo.
+    _ How buymont and bawdwyn beyng certayn of the pryse and conqueste of Iherusalem wolde accomplysshe theyr pylgremage / Capitulo. / CC·iiijo.
 
-1. How our Cristen men chosen a very Patriarke in Iherusalem and assigned to hym rentes / cao. CCvo
+    _ How our Cristen men chosen a very Patriarke in Iherusalem and assigned to hym rentes / cao. CCvo
 
-1. How by thatysement of somme men a grete debate sour•ed bytwene the duc and the patriarke of Iherusalem / cao. CCvjo
+    _ How by thatysement of somme men a grete debate sour•ed bytwene the duc and the patriarke of Iherusalem / cao. CCvjo
 
-1. Hier recounteth thystorye how the fourth parte of Iherusalem cam vnto the patriarke of the same / cao. CCvijo.
+    _ Hier recounteth thystorye how the fourth parte of Iherusalem cam vnto the patriarke of the same / cao. CCvijo.
 
-1. Of the same mater / cao. CCvii•o
+    _ Of the same mater / cao. CCvii•o
 
-1. How the duc Godeffcoy for to augmente the Cristiente / assieged one of the townes of the turkes / cao CCixo.
+    _ How the duc Godeffcoy for to augmente the Cristiente / assieged one of the townes of the turkes / cao CCixo.
 
-1. How the turkes brought presentes to the duc godeffroy at the sayd siege and of theyr deuyses to gydre / cao. CCxo.
+    _ How the turkes brought presentes to the duc godeffroy at the sayd siege and of theyr deuyses to gydre / cao. CCxo.
 
-1. How buymont was taken in goyng to Meletene / whiche cyte the lord of the same wold yelde to hym cao. CCxjo.
+    _ How buymont was taken in goyng to Meletene / whiche cyte the lord of the same wold yelde to hym cao. CCxjo.
 
-1. How the duc godeffroy assembled alle his peple· Andentred in to Arabye. And of the gayn that he made· And of his deth Capitulo CCxijo.
+    _ How the duc godeffroy assembled alle his peple· Andentred in to Arabye. And of the gayn that he made· And of his deth Capitulo CCxijo.
 
 **Types of content**
 
